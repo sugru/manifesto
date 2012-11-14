@@ -1,4 +1,4 @@
-manifesto
-=========
+README
+======
 
 The Fixer's Manifesto
