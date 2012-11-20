@@ -25,5 +25,5 @@
 
 **12. Share your ideas, your enthusiasm and your skills.** If you've found the joy of fixing, pass it on. It's a gift for life.
 
-From the inventors of sugru.
-Inspiration credits to Platform 21's repair manifesto, ifixit, Holstee and the Cult of Done.
+From the inventors of [sugru](https://sugru.com).
+Inspiration credits to [Platform 21](http://www.platform21.nl)'s repair manifesto, [ifixit](http://www.ifixit.com/), [Holstee](http://shop.holstee.com/pages/about), and the [Cult of Done](http://www.brepettis.com/blog/2009/3/3/the-cult-of-done-manifesto.html).
