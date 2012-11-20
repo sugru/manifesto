@@ -15,7 +15,7 @@
 
 **7. A fixed thing is a beautiful thing.** Every fix, whether skillful or improvised, holds a story.
 
-**8. If you have an idea, start small and make it good.** If it’s right, it'll grow from there.
+**8. If you have an idea, start small and make it good.** If it's right, it'll grow from there.
 
 **9. Nurture your curiosity. Keep trying things you've never tried before.** It's good for your brain and your soul. Don't be afraid to fail — it makes success all the sweeter.
 
