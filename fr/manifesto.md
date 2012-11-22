@@ -19,7 +19,7 @@ Le manifeste du réparateur
 
 **9. Nourrissez votre curiosité.** Essayez des choses que vous n'avez jamais faites avant. C'est bon pour votre esprit et votre âme. N'ayez pas peut des échecs, il rend le succès encore plus agréable.
 
-**10. Les gens sont tous différents.** Les produits doivent l'être aussi. Tout peut être améliorer ou adapter à ces besoins.
+**10. Les gens sont tous différents.** Les produits doivent l'être aussi. Tout peut être améliorer ou adapter à ses besoins.
 
 **11. Être jetable est un choix, pas une caractéristiques physique.** Les plastiques ne sont pas nécessairement mauvais. Traitez les avec respect.
 
